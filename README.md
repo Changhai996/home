@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Changhai996
-- 👀 I’m interested in virus 
+- 👀 I’m interested in archaea and virus 
 - 🌱 I’m currently learning how to make me happy
 - 💞️ I’m looking to collaborate on how to live with me for a long time
 - 📫 How to reach me cduanab@connect.ust.hk
